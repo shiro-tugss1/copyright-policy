@@ -26,7 +26,7 @@
 | 📘 Facebook |[@Т. Гантөгс](https://www.facebook.com/share/1Mf16TdqWy/) |
 | 💼 BioSites |[@Gantugs](https://bio.site/gantugss1?utm_source=ig&utm_medium=social&utm_content=link_in_bio&fbclid=PAb21jcATAitZleHRuA2FlbQIxMQBzcnRjBmFwcF9pZA81NjcwNjczNDMzNTI0MjcAAafMFlne9Jez2FhoFXCeKvZY9YwSdoerTxCp0k8aaaZEl2PQvprclpMWDkokfg_aem_K4BNehNxJfT6IZSFDrku0w) |
 
-> ✏️ Дээрх хоосон талбаруудыг өөрийн сошиал хаягуудаар солино уу.
+> ✏️ Дээрх сошиал хаягуудаар ба имейл ээр холбогдоно уу.
 
 ---
 
